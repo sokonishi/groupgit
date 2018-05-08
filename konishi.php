@@ -1,0 +1,4 @@
+kokokokoninini
+
+konikoni
+nikoniko
